@@ -1,2 +1,6 @@
 # FeZZStay
-FeZZTure Texture Pack Minecraft Mc10/MCBE/Pocket. FeZZTure  Texture pack
+FeZZStay Texture Pack Minecraft Mc10/MCBE/Pocket. FeZZStay  Texture pack
+
+Created By : FeZZ
+
+Country From : Indonesia
